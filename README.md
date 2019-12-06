@@ -1,0 +1,2 @@
+# hacker
+jngn asal gunakan
